@@ -5,3 +5,4 @@
 - 📫 How to reach me send me a private msg or add me in discord: popo9230
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I've studied 2 career degrees and neither of them was about IT.
+- 👾 Favorite Games: Dead by Daylight, The Last of Us and Hollow Knight.
